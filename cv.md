@@ -16,7 +16,7 @@ Organized, detail oriented, and a self starter.
 ```
 09/2018 - 06/2022 – Belarusian State University, Faculty of International Relations (Minsk, Belarus)
 International Tourism Management
-GPA: 8.5
+GPA: 8
 ```
 ## INTERNSHIPS
 
